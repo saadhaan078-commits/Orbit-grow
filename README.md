@@ -7,7 +7,7 @@ Welcome to my GitHub profile! I specialize in helping businesses grow online thr
 
 ### 🌐 Connect with OrbitGrow
 - 🌍 **Website:** [https://orbitgrow.net](https://orbitgrow.net)
-- 📍 **Location:** Peshawar / Karachi, Pakistan
+- 📍 **Location:** Battagram, Peshawer Pakistan
 - 🚀 **Services:** SEO, Meta Ads, Google Ads, Web Development & Branding
 
 ---
